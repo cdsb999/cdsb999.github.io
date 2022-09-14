@@ -2,4 +2,4 @@
 
 客服Telegram(电报)号：cdsb999
 
-客服邮箱：cdsb999@yandex.com
+客服邮箱：cdsb999@gmail.com
